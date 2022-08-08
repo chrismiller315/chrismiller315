@@ -1,0 +1,26 @@
+-=✨=-    **EMOJI BIO:** 👋🔥💩🍾😎🥺😘🍆👍💦🤦‍♂️🚀⭐️    -=✨=-
+-
+- 
+-
+-=✨=-    **FULL TEXT BIO:**    -=✨=- 
+-
+- 👋 I’m @chrismiller315. I recently joined the interwebs b/c everyone at work says it's 🔥
+- 
+- But apprently some content is gross 💩 / inappriopriate  for work 🍾 
+- 
+- 😎 I guess I'm getting involved in some risk business.
+- 
+- But I dint want to feel left out 🥺
+-  
+- 😘🍆 I'm so confused why everyone always shares their love for eggplant online?
+- 
+- I mainly sign on so that I can follow ny grammy on The Facebook 👍 ! 
+-
+- Everyone seems to be big fans of 💦 water as well so there is at least one thing we all seem to agree on wherein I fit in.
+- 
+- 🤦‍♂️ If I wrote this entire bio in emojis, it would be more clear/conside and faster/easier for people to read. 
+-
+- I can get the hang of this and shoot for the stars! 🚀🚀🚀⭐️⭐️
+-
+- 
+- ✨ BUY ETHERIUM - BUY BITCOIN - BUY USDT - VIVA LA REVOLUCION ✨   
